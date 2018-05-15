@@ -1,1 +1,1 @@
-jibreil.xyz
+https://jibreil.xyz/
